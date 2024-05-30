@@ -1,0 +1,2 @@
+# Sel-uk-
+Kalite kontrol
